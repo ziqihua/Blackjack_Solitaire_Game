@@ -1,0 +1,1 @@
+I finish this homework myself, without collaborating with any classmates.
